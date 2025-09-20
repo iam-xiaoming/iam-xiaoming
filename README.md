@@ -1,3 +1,3 @@
 小英，好久不见了，不知道你现在怎么样了？还会不会怕陌生人？不知道你最近工作怎么样了，还会不会跟老板吵架？虽然我们远隔千山万水，但是我依然记得你，很想你，谢谢你这些年陪我走过的路，真的非常感谢。虽然以后我们不能再走同一条路，甚至没有机会再见面，但是那个坚强又柔弱的北方女孩的形象，会一直印在我的脑海里。不过不管你怎么样，不管你的工作有多忙，记得照顾好自己的身体，不要太专注于工作而忘记了照顾自己。
 
-Ngay cả khi ở Việt Nam còn không thể gặp mặt, thì Trung Quốc đại lục rộng lớn đến như vậy thì làm gì có cơ hội chứ!
+Ngay cả khi ở Việt Nam còn không thể gặp mặt, thì Trung Quốc đại lục rộng lớn đến như vậy thì làm gì có cơ hội chứ! Ying à, tui chỉ muốn hỏi là, bà dạo này vẫn ổn chứ?
